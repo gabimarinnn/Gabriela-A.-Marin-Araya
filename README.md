@@ -1,1 +1,1 @@
-# Imagen-Escrita-2019
+# Gabriela A. Marin Araya
